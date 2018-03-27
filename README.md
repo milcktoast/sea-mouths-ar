@@ -5,7 +5,7 @@
 
 <img src="https://farm1.staticflickr.com/790/26185752997_0a088d02cb_b.jpg" width="741" height="772" alt="sea-mouths-ar-01--001" />
 
-> [Screen Capture Video](https://www.flickr.com/photos/jpweeks/26185751777/)
+> [Screen Capture Video](https://www.flickr.com/photos/jpweeks/41015181742/)
 
 
 ## Concept
